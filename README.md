@@ -1,1 +1,1 @@
-My favorite books
+My favorite books.
